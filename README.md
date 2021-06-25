@@ -1,2 +1,3 @@
-# YT
-Youtube info for the channel of INKK.inc
+# INK.INC
+Pen Gang Welcome
+:)
